@@ -1,4 +1,4 @@
-# 
+# best Trading Bot for ftx trading bot | liquidation-sniping & low-frequency is the best ftx trading bot, featuring liquidation-sniping and low-frequency. Smart, fast, and optimized
 
 
 
